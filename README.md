@@ -1,1 +1,0 @@
-# oct_mini_project
